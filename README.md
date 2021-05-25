@@ -1,2 +1,0 @@
-# walyson-curriculum
-Portfólio | Currículo
